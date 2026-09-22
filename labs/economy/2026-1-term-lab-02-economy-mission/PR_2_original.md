@@ -1,0 +1,1 @@
+![[../../../raw/assets/Prakticheskaya_rabota_2 1.docx]]
